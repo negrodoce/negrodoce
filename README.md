@@ -12,7 +12,7 @@ meu nome é Klinger
 
 @Klinger_jr
 
-https://media1.tenor.com/m/I5bEazlQrBAAAAAC/what-kid.gif
+![](https://media1.tenor.com/m/I5bEazlQrBAAAAAC/what-kid.gif)
 
 
 
